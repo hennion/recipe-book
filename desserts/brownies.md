@@ -8,6 +8,7 @@
 - 200 g dark chocolate
 - 1 large handful of walnuts
 - 4 fresh eggs
+You can also replace the walnuts with pecans.
 
 ## Instructions
 - Place the chocolate and butter in small pieces in a saucepan. Melt in a bain-marie while stirring.
